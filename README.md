@@ -1,0 +1,1 @@
+# WarSMP Resource Pack
